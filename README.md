@@ -1,1 +1,1 @@
-Minhquan223.github.io/Foryou
+https://Minhquan223.github.io/Foryou
